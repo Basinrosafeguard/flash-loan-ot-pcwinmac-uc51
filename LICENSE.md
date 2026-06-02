@@ -1,4 +1,4 @@
-# 
+# Nativo flash loan arbitrage bot plugins para Mac OS | Leve flash loan arbitrage bot plugins para PC Windows. Com proteção contra front-running e gestão de margem — otimizado para máximo desempeño en cada plataforma.
 
 
 
